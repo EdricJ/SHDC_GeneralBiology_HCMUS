@@ -10,3 +10,4 @@ Links:
 
 * [TRẠM ÔN TẬP 2 (google.com)](https://docs.google.com/forms/d/e/1FAIpQLSdXct8PMS42PPkSRa86JAyJKbL5ZJl3Zf37eVCBljKEhaIsWg/viewscore?viewscore=AE0zAgAM_YpsBq_wJPAFXvDhmb1JYeS78ELWHg9CuN_L5eGB3t9afKYLl_Ragbz9SskpqzE&fbclid=IwAR3iH494NUjlfqa98r8IoMyMdr8oGUreJS4pw3MyCdxxH0ueyBW0ceCmIgc)
 
+* https://drive.google.com/drive/folders/1fpvyupbXTR0CYme26pmarJQnwalxcijR?usp=share_link
